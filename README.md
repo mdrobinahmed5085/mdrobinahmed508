@@ -1,6 +1,7 @@
+![I am a UI & Graphic Designer](https://media.licdn.com/dms/image/D5616AQHp2Kz5C_ZdPQ/profile-displaybackgroundimage-shrink_350_1400/0/1705922169632?e=1723075200&v=beta&t=i-YXQITTYLlT_Hb-LJ001ubfDyzBoD0Xb_3Y47eIsG4)
 # Hi there 👋, I'm Md Robin Ahmed
 #### I am a UI & Graphic Designer
-![I am a UI & Graphic Designer](https://media.licdn.com/dms/image/D5616AQHp2Kz5C_ZdPQ/profile-displaybackgroundimage-shrink_350_1400/0/1705922169632?e=1723075200&v=beta&t=i-YXQITTYLlT_Hb-LJ001ubfDyzBoD0Xb_3Y47eIsG4)
+
 
 Hello, I am Md Robin Ahmed, a dedicated UI & Graphic Designer with a passion for creating visually appealing and user-friendly designs. With a keen eye for detail and a strong understanding of design principles, I specialize in crafting intuitive interfaces and compelling graphics that enhance user experience and engagement. My expertise spans across various design tools and platforms, allowing me to deliver high-quality work that meets the unique needs of each project. I am committed to continuous learning and staying updated with the latest design trends to ensure my work remains innovative and effective.
 
